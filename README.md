@@ -68,7 +68,7 @@ the user is responsible.
   <h1> 🐺 WhatsAsenaPublic </h1>
 </div>
 <p align = "center">
-    WhatsAsenaPublic - Made By Toxic Devil.
+    WhatsAsenaPublic - Made By ❣️ɱ𝐔𝐁🅰𝐬𝐇𝐢𝐑❣️.
     <br>
 
 ### Simple Method
